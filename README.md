@@ -1,1 +1,1 @@
-# umschool-teletype.github.io
+# Умскул
